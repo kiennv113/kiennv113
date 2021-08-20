@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Kien Nguyen ^^!
-- 👀 I’m interested in coding, reading, playing football, playing game.
+- 👀 I’m interested in playing football, reading book, playing video game and CODING.
 - 🌱 I’m currently learning Java, C#
 - 💞️ I’m looking to collaborate on with all of you.
 - 📫 How to reach me 
